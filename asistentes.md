@@ -11,5 +11,5 @@
 | alexrodriguezlop| https://www.linkedin.com/in/alexrodriguezlop/                           |
 | antoniogamiz    | https://www.linkedin.com/in/antonio-gamiz/    |
 | carax24         | https://www.linkedin.com/in/jorge-aguilera-parejo-288ab11a2/            |
-
-
+| postdata9       | https://www.linkedin.com/in/paula-santos-ortega-285489194/              |
+| merchan98       | https://www.linkedin.com/in/fco-merchan-b337b411b                       |
